@@ -1,0 +1,1 @@
+This website will showcase the wall art created by Jeffrey Mello. Jeffrey's art is made from preserved moss, branches and other greenery composed within antique and vintage picture frames. The website will contain images, contact information, custom order form, and ways to purchase.
